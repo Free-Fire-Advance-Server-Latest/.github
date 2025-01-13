@@ -1,5 +1,9 @@
-Free Fire Advance Server Download
+Download Free Fire Advance Server 2025
 =================================
+
+[Download Now](https://free-fire-advance-server.magiskmodule.com/free-fire-advance-server)
+------------------------------------------------------------------------------------------
+
 
 Garena's **Free Fire Advance Server** lets gamers see new game updates before they're released. By joining, you get early access to test exciting new features. It's a chance to explore what's coming next.
 
