@@ -21,7 +21,7 @@ If you want to see what's coming next in Free Fire, join this special server. Yo
 
 By joining **beta testing**, you help Free Fire grow and get better. You get to try new features and report any problems. Your feedback is key to making the game even more fun.
 
-What is Free Fire Advance Server and Its Benefits
+What is FreeFire Advance Server and Its Benefits
 -------------------------------------------------
 
 The Free Fire Advance Server lets players try out new game features before they're released. It's a special place where you can see **early access features** and help test the game. This helps shape the future of Garena Free Fire.
@@ -64,7 +64,7 @@ Garena uses the Advance Server to test new features. This keeps Free Fire exciti
 
 _Your input in the Advance Server helps shape Free Fire's future. Every player plays a key role in the game's growth._
 
-System Requirements for Free Fire Advance Server
+System Requirements for Free Fire AdvanceServer
 ------------------------------------------------
 
 To run the Free Fire Advance Server, your device needs certain capabilities and **software specs**. Knowing if your device is compatible is key for a good testing experience.
