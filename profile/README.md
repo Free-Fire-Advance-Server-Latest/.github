@@ -6,6 +6,8 @@ Download Free Fire Advance Server 2025
 
 Garena's **Free Fire Advance Server** lets gamers see new game updates before they're released. By joining, you get early access to test exciting new features. It's a chance to explore what's coming next.
 
+![Free Fire Advance Server](https://github.com/magiskmodule/moto/blob/40ec9147a6491a77be4f484a9e39cea05922c0ac/Free%20Fire%20Advance%20Server.png)
+
 Downloading the **Free Fire Advance Server** gives you a special look at upcoming changes. You can test new mechanics and share your thoughts with the developers. This guide will show you how to get started with this exclusive preview.
 
 Being part of the Advance Server means you're helping shape Free Fire's future. Your feedback and bug reports help make the game better for everyone. It's a chance to be part of something big.
